@@ -13,7 +13,6 @@ Christian Vervoorts
 
 # Kontakt
 
-Telefon: 0221-63061793   
 eMail: hallo@nerderrhein.de
 
 Verantwortlich für den Inhalt nach § 55 Abs. 2 RStV:    
